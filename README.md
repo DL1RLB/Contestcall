@@ -4,7 +4,7 @@
  
 ![Contestcalls](https://user-images.githubusercontent.com/69315366/89714996-ba322800-d9a2-11ea-837a-0adea6d606ed.jpg)
 
-![Webseite DL1RLB](http://lutz-baer.homepage.t-online.de/wordpress/?p=924)
+[Webseite DL1RLB](http://lutz-baer.homepage.t-online.de/wordpress/?p=924)
  
  73, Lutz DL1RLB
 
